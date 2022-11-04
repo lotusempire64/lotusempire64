@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lotusempire64 an ethical hacker/pentester
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on any cool python projects or things that could make money, i am happy to invest into the project if i think its good enough
+- 📫 How to reach me is on Discord: Red Lotus#8484 or by Email: lotusempire6@gmail.com
